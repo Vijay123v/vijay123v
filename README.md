@@ -1,7 +1,7 @@
  ## Hi there 👋
 
 <-
-**Vijay123v/vijay123v** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**BOGGULA VIJAY SIMHA REDDY** is a ✨ _special_ ✨ repository because its `README.md` (vijay123v) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
